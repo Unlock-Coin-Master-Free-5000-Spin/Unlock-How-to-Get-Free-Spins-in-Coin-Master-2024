@@ -2,7 +2,7 @@
 
 Coin Master continues to captivate mobile gamers worldwide, offering a fun and addictive blend of slot machine mechanics, village building, and card collection. With millions of players actively spinning their way through villages, collecting pets, and raiding each other’s villages, Coin Master has evolved into one of the most successful mobile games of its kind.
 
-### [👉CLICK HERE TO GET NOW FREE](https://jackmarkjr.github.io/spins/)
+### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
 
 As any experienced player knows, the game’s currency—spins—are the lifeblood of success in Coin Master. Whether you’re looking to attack another player’s village, raid their treasures, or complete your card collection, spins are essential for progress. While purchasing spins is an option, there is also a more rewarding and entirely free way to get them. Let’s explore how you can unlock **free spins** in Coin Master in 2024!
 
